@@ -9,8 +9,11 @@ anyways heres denji with blood comeing out of his mouth after geting beat up or 
 
 ![e1fb9f25](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/72ffcac9-f47a-4789-8695-f6be073f3421)
 ![27260357](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/3144f636-270c-4aa9-a16d-6ea1490df83e)![b72b8cd6](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/c63ea06e-4c5b-4b73-aa3c-f96e6ab86436)![3225d277](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/e0653f7f-df6f-4e27-9fb0-2735aae82395)![0eadf3e8](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/abf4be83-3d7f-4d3a-a85a-974d3baa4bf3)
+                                                                                                                             
+ ![tumblr_lp8mc0LlpO1qapbyt540](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/66c03def-017c-4883-b7d5-096895ea8374)![tumblr_lp8mc0LlpO1qapbyt540](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/7364af81-71c7-4c02-80a4-e7e0ce24d733)
+![tumblr_lp8mc0LlpO1qapbyt540](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/1f37d97e-9cfd-466c-b63a-954311ccb283)
 
- 
+
 
 
 
