@@ -8,7 +8,9 @@ anyways heres denji with blood comeing out of his mouth after geting beat up or 
 ![9f63c3a8](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/048a2691-5596-43e2-83a0-e61cfc5ea489)![9f63c3a8](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/1124e971-ba56-4779-b6e7-f975b9bcd4d1) 
 
 ![e1fb9f25](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/72ffcac9-f47a-4789-8695-f6be073f3421)
-![27260357](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/3144f636-270c-4aa9-a16d-6ea1490df83e)![b72b8cd6](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/c63ea06e-4c5b-4b73-aa3c-f96e6ab86436)
+![27260357](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/3144f636-270c-4aa9-a16d-6ea1490df83e)![b72b8cd6](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/c63ea06e-4c5b-4b73-aa3c-f96e6ab86436)![3225d277](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/e0653f7f-df6f-4e27-9fb0-2735aae82395)![0eadf3e8](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/abf4be83-3d7f-4d3a-a85a-974d3baa4bf3)
+
+ 
 
 
 
