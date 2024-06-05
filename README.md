@@ -16,5 +16,7 @@
 
 ![Drolta Tzuentes Castlevania](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/f76cddea-0459-4242-9aaa-0735b78ec1d7)
 
-![0eadf3e8](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/c9ac49e2-829c-43c4-8cf6-6fe56946b625)![30252cd7](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/11c70be0-5a4a-4cb5-973f-0ed65bb24ebf)
+![0eadf3e8](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/c9ac49e2-829c-43c4-8cf6-6fe56946b625)![30252cd7](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/11c70be0-5a4a-4cb5-973f-0ed65bb24ebf)![das3u67-71c903ed-8eff-41d3-86ad-3700a9748b7c](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/39de7a79-af19-4d2c-86e3-f2e7f0ab79e3)![d4g00q2-b797eb81-827c-4f8b-8c2d-6df14e7aa4fd](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/ce68bdd6-ad97-49a7-b564-95b6ac96ab46)![c0c04fe7](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/851665cd-4186-4a02-9645-bbc70178a0c7) SHE sO DANM FINE I NEED HER SO BAD NO JOK- 
+
+HAPPY PRIDE MONTH GUYS!!!!!!!!!!!!!!!
 
