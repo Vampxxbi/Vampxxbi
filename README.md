@@ -20,5 +20,8 @@
 ![0eadf3e8](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/c9ac49e2-829c-43c4-8cf6-6fe56946b625)![30252cd7](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/11c70be0-5a4a-4cb5-973f-0ed65bb24ebf)![das3u67-71c903ed-8eff-41d3-86ad-3700a9748b7c](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/39de7a79-af19-4d2c-86e3-f2e7f0ab79e3)![d4g00q2-b797eb81-827c-4f8b-8c2d-6df14e7aa4fd](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/ce68bdd6-ad97-49a7-b564-95b6ac96ab46)![c0c04fe7](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/851665cd-4186-4a02-9645-bbc70178a0c7) SHE sO DANM FINE I NEED HER SO BAD NO JOK- 
 ![f274939a](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/9384f2ab-8d95-46fa-b1b5-51c36ceb64c5)
 
-HAPPY PRIDE MONTH GUYS!!!!!!!!!!!!!!!
+HAPPY PRIDE MONTH GUYS!!!!!!!!!!!!!!! ![27260357](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/07b81e3a-ad59-44c4-b184-128deed13e50).![26646ca2](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/6999f295-4e02-494c-b580-70b4df1e4f7a)![15097b51](https://github.com/Vampxxbi/Vampxxbi/assets/153141743/b2d0e285-01b6-4dba-b2be-46e1a523590b)
+
+
+
 
