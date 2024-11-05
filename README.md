@@ -1,4 +1,5 @@
 
-![blur_edges](https://github.com/user-attachments/assets/f951801f-152d-4252-af5a-1a4c17e9a40c) wip...![acigkc](https://github.com/user-attachments/assets/9a981175-fee7-4303-9d32-83389858390c)
+![Hear me out cake](https://github.com/user-attachments/assets/50bce3c8-5579-4bba-868e-f08d121a55d8)
+ wip...![acigkc](https://github.com/user-attachments/assets/9a981175-fee7-4303-9d32-83389858390c)
 
             
