@@ -1,2 +1,1 @@
-![blur_edges](https://github.com/user-attachments/assets/22defdc1-b96f-420b-b5e3-f396819c228a)
-
+![blur_edges (1)](https://github.com/user-attachments/assets/adc52585-972f-4818-979c-418822a69f70)
