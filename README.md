@@ -1,1 +1,1 @@
-![ここあーと くらげ](https://github.com/user-attachments/assets/ef68abb2-6771-4a83-941a-d6c1f71f1925)
+![fd5fa03fad527c0a033b408e06bcd5ea](https://github.com/user-attachments/assets/b1abc900-e3b4-4e7e-9483-5a5bb010c1e5)
